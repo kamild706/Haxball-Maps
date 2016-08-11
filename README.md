@@ -1,3 +1,4 @@
 # Haxball Maps
 
-mrJoe's haxball maps
+Joe's power classic night edition
+Joe's power big night edition
